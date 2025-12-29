@@ -1,0 +1,1 @@
+# malguard-privacy-policy
